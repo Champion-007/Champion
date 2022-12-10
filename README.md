@@ -1,2 +1,2 @@
-visnu
+vishnu
 
